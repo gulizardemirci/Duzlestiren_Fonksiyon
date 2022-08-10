@@ -1,0 +1,1 @@
+# Duzlestiren_Fonksiyon
